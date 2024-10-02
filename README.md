@@ -14,7 +14,7 @@
  
 <br>
  
-### Pra entrer em contato me segue abaixo!
+### To get in touch with me, follow me below!
  
 <div> 
  
